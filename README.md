@@ -1,0 +1,1 @@
+# oomdena_earthquake
